@@ -19,4 +19,3 @@ it have skinchanger,aimbot,triggerbot,esp,and more
 
 
 backmove is hvh cheats and selectfire is legit 
-i put there my configs
